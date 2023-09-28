@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @meeno456
-- 👀 I’m interested in bikes
+- 👀 I’m interested in bikes💪🦵🏳‍🌈
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on microsoft
 - 📫 How to reach me (available anytime😉)
